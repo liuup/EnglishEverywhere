@@ -20,3 +20,8 @@ n. 追逐
 
 1. Cornfield **Chase**  
 原野追逐（出自星际穿越）
+
+## satellite
+n. 卫星；人造卫星
+1. [【4K】疾速追杀之Nerf - Bilibili](https://www.bilibili.com/video/BV1m5411E7BR)  
+00:17处的右上角有个Satellite Uplink
