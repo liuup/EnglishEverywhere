@@ -13,3 +13,10 @@ n. 一千美元（或英镑）；大钢琴
 
 1. **Grand** Theft Auto  
 侠盗猎车手
+
+## chase
+v. 追逐  
+n. 追逐
+
+1. Cornfield **Chase**  
+原野追逐
