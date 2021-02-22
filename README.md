@@ -25,3 +25,8 @@ n. 追逐
 n. 卫星；人造卫星
 1. [【4K】疾速追杀之Nerf - Bilibili](https://www.bilibili.com/video/BV1m5411E7BR)  
 00:17处的右上角有个Satellite Uplink
+
+## casino
+n. 赌场
+1. [Grand Opening: The Diamond Casino & Resort is Now Open](https://www.rockstargames.com/newswire/article/61051/Grand-Opening-The-Diamond-Casino-Resort-is-Now-Open)  
+出自gta5的一次大更新
